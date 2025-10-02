@@ -5,7 +5,7 @@
   
 ## ©️ Автор
 Псевдоним: Slado/Formi/Gree  
-Последнее изменение: 15.09.2025  
+Последнее изменение: 02.10.2025  
 Roblox: @Gree4a  
 Discord & Telegram: sladostrastnik  
 Биография: https://sladostrastnik.carrd.co  
